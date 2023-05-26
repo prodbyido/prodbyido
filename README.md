@@ -1,4 +1,5 @@
 ![What Dreams Are Made Off(已处理)](https://github.com/prodbyido/prodbyido/assets/134588650/2e34b9c1-acfe-465f-ad79-f6cb56678600)
+![music-and-happiness(已处理)](https://github.com/prodbyido/prodbyido/assets/134588650/8cc3311b-f958-401f-9ee7-1f27b48a3285)
 
 
 <!--
