@@ -1,6 +1,6 @@
 ![What Dreams Are Made Of](https://github.com/prodbyido/prodbyido/assets/134588650/adb93695-a462-4c2e-a9e5-fe14a2f8b8d1)
 
-![Music Player1](https://github.com/prodbyido/prodbyido/assets/134588650/1e279ff7-abab-4e0b-9c61-0ce38de695d2)
+![Music Player1](https://github.com/prodbyido/prodbyido/assets/134588650/c0f7e7a2-ef2b-4d3f-b347-7c5139e06fcf)
 
 <!--
 **prodbyido/prodbyido** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
